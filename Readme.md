@@ -62,4 +62,4 @@ Pretendo atingir a marca de 500.000 alunos e para isso te convido a entrar em um
 
 #Sucesso!
 
-https://www.udemy.com/share/103m1eAEIYclZVRXoB/
+Caso queira fazer o curso [https://www.udemy.com/share/103m1eAEIYclZVRXoB/]
